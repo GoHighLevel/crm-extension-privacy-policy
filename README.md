@@ -1,1 +1,0 @@
-# crm-extension-privacy-policy
